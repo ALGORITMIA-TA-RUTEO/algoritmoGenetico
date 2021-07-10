@@ -1,1 +1,2 @@
 # algoritmoGenetico
+#LA CSMREEEEEEEEEEEE!!!!!
